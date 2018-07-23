@@ -1,6 +1,6 @@
 # For Crying Out Cloud
 
-<img src= "https://activeplanettravels.com/wp-content/uploads/2011/06/hike-892919_1920.jpg">
+<img src= "https://media.gettyimages.com/photos/poppy-field-in-cloudy-day-picture-id171153051">
 
 ## WHAT?
 <p>
